@@ -3,7 +3,7 @@
 
 Forward Deployed Engineer | Founder, TryVtri
 
-Islamabad, Pakistan | Open to remote roles
+Islamabad, Pakistan | Open to remote roles / on-site roles as well 
 
 ---
 
